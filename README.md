@@ -12,5 +12,5 @@ Olá! Sou um profissional com 6 anos de experiência em telecomunicações e est
 
 
 ## 📫 Contato
-- Email: denner.psilva@hotmail.com
+- Email: dennerpereira.ds@gmail.com
 - LinkedIn: [Meu perfil](https://www.linkedin.com/in/denner-pereira-silva-0a80b915b)
